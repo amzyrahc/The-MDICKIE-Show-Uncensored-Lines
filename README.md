@@ -1,4 +1,4 @@
-# The MDICKIE Show Uncensored Lines Resurfaced 🏔️
+# The MDICKIE Show Uncensored Lines Resurfaced 🏔️ <a href="//www.dmca.com/Protection/Status.aspx?ID=10b517df-3088-4358-ab40-932184526344" title="DMCA.com Protection Status" class="dmca-badge"> <img src ="https://images.dmca.com/Badges/dmca-badge-w100-5x1-07.png?ID=10b517df-3088-4358-ab40-932184526344"  alt="DMCA.com Protection Status" /></a>
 *Proudly found in the Philippines 🇵🇭*
 
 ## Hey, I'm Amzyrahc (TFFRed10 / tpmain) 👋
@@ -12,3 +12,6 @@ Self explanatory, this repository has all the **uncensored lines** from *"The MD
 
 
 Enjoy the game with the uncensored lines. 🤗
+
+## DMCA Protected ⚠
+https://www.dmca.com/r/w5qpedw
