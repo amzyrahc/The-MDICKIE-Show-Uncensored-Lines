@@ -13,5 +13,11 @@ Self explanatory, this repository has all the **uncensored lines** from *"The MD
 
 Enjoy the game with the uncensored lines. 🤗
 
+
+## Links
+* [x] https://www.reddit.com/user/tpmain
+* [x] https://www.reddit.com/user/TheShamWOOHOOO/
+* [x] https://forums.lostmediawiki.com/thread/12600/mdickie-shows-lost-media-partially
+
 ## DMCA Protected ⚠
 https://www.dmca.com/r/w5qpedw
