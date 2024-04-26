@@ -19,5 +19,4 @@ Enjoy the game with the uncensored lines. 🤗
 * [x] https://www.reddit.com/user/TheShamWOOHOOO/
 * [x] https://forums.lostmediawiki.com/thread/12600/mdickie-shows-lost-media-partially
 
-## DMCA Protected ⚠
-https://www.dmca.com/r/w5qpedw
+## DMCA Removed
